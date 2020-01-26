@@ -1,0 +1,2 @@
+# Paradoks
+Resistent
